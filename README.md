@@ -1,0 +1,2 @@
+# AKMAL-DAFA-GAFFARI
+Matahari telah bersinar dan kehidupan baru telah dimulai. Dendangkanlah kata kata mutiara kehidupan sehari hari dan mulailah berkarya hari ini. Berpikirlah bahwa kamu pantas bahagia dan pantas menang hari ini.  Apapun yang terjadi kemarin, tinggalkan dan jangan biarkan pengalaman itu mengganggumu. Melangkah dan buatlah gebrakan hidupmu. Kuatkan semangat dan inspirasimu hari ini dengan kumpulan kata kata bijak kehidupan ini!
